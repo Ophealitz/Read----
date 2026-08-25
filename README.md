@@ -16,5 +16,4 @@ I'm like a sheep but takes time to earn their trust. <3,
 
 sometimes I'm afk or not sometimes in a bad mood 
 
-I overthink alot I get nervous if there's something wrong with my other friends added in the list. !
-
+I overthink alot!
