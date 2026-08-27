@@ -1,4 +1,4 @@
-# Read----
+
 
 
 hello if anyone wants to be friends with me
@@ -16,4 +16,14 @@ I'm like a sheep but takes time to earn their trust. <3,
 
 sometimes I'm afk or not sometimes in a bad mood 
 
-I overthink alot!
+
+if I'm in a good mood to my close friends or friends rather or we have peak connection 
+
+there's somewhere i lost in to the conversation to the point I forgot my other friends 🤔..
+
+that doesn't mean I Don't care about you guys!,
+there are times where I try to communicate but I'm very shy to interact w cool people with great reputation 😭
+
+!!!
+
+
